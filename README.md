@@ -81,4 +81,4 @@ I love coding at night 🌙 and building creative web apps that blend design wit
 
 ---
 
-⭐ From [Ateeb Ahmad](https://github.com/ateebahmad22)
+⭐ From [Ateeb Ahmad](https://github.com/ateebahmad299)
